@@ -1,1 +1,1 @@
-# ana-rekovets.github.io/portfolio
+# ana-rekovets.github.io/econ-portfolio
